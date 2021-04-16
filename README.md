@@ -1,3 +1,4 @@
+# [Download](https://www.mediafire.com/folder/hbmgzju07jubc/New+RAJAZAP)
 # RajaZap6.0![Screenshot 2021-04-15 223948](https://user-images.githubusercontent.com/70449957/114959529-99787700-9e3b-11eb-9a45-c26cb4f92868.png)
   
 # How To Use It
